@@ -1,0 +1,1 @@
+# Definition_of_clothes_and_shoes_in_the_image
